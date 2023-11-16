@@ -5,6 +5,9 @@
 # Why?
 2nd best Intave cheat like bro ong. Was very ez to crack mane. Also sum people are chill from their com but some are hella acoustic ykyk.
 
+# Disclaimer:
+**Please do not use Gothaj 3.0 Alpha Cracks from any other sources besides this one. We are highly trusted and there is a chance that other sources culd be promoting our crack as their own or even worse ratting our crack and It could give the Gothaj Development Team bad name. Run clients only from trusted sources!!!**
+
 [3000IQPlayA]: https://github.com/3000IQPlay
 
 # How To Use
